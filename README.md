@@ -1,2 +1,2 @@
-## Welcome to the landing page for Toni Johnson
+## Toni Johnson
 **Designer** // **Artist** // **Writer**
